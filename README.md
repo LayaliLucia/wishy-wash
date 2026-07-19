@@ -20,4 +20,4 @@ The goal was to experiment, learn, and have fun with the process.
 
 ---
 
-Made with ❤️ by Khadiga
+Made with ❤️ by Khadija
